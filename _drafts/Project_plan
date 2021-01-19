@@ -1,0 +1,45 @@
+Overarching field to learn is data science. Specifically I want to understand the entire process or going from data to implementing a model.
+
+* The main way that this will be learned is through projects.
+* In addition to projects I will build time in for books and courses however they are supplementary as I expect most learning will be done through the trial and error and research done within a project.
+
+
+Project: Learn to implement a learning chatbot in python that recognizes audio and eventually recognizes face
+
+
+-> two big domains here
+- Python chat bot implementations
+- AI modeling for Audio 
+	- I should be able to find a model prebuilt to understand speech
+	- I can also find one to recognize images
+	- Eventually I would like to implement my own model. This is where the learning will come into play.
+
+
+
+
+Principles
+1 - Metalearning
+2 - Focus
+3 - Directness
+4 - Drill
+5 - Retrieval
+6 - Feedback
+7 - Retention
+8 - Intuition
+9 - Experimentation
+
+Project: Kaggle
+Project: Mentor
+
+Resources:
+
+
+Sample Cirriculumn:
+Python/R
+Stats/Linear Algebra
+Numpy/Pandas/Matplotlib
+ML Algorithms
+Production Systems
+
+I took about a month to review the Python docs, the Hitchhiker’s Guide to Python, and coding challenges on CodeSignal.
+Check out the Pandas Docs, Numpy Docs, and Matplotlib Tutorials. There are better resources out there, but these are what I used.
