@@ -8,6 +8,5 @@ title: About
 </p>
 
 * [E-mail](mailto:alcarazirvin@gmail.com)
-* [Twitter](http://twitter.com/Urbansidewalks)
 * [Instagram](https://www.instagram.com/irvinalcaraz_)
 * [LinkedIn](https://www.linkedin.com/in/irvinalcaraz)

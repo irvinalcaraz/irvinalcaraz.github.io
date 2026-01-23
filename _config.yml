@@ -1,7 +1,7 @@
 # Setup
-title:               Local Catboy
-#tagline:             'Musings'
-description:         'He/Him. Business Analyst at Farmers Insurance.'
+title:               Flaming heap of nonesense
+#tagline:            'Musings'
+description:         'Tharr be some good pages here.'
 url:                 http://irvinalcaraz.com
 baseurl:             ''
 paginate:            5
@@ -10,7 +10,6 @@ permalink:           pretty
 # About/contact
 author:
   name:              Irvin Alcaraz
-  url:               https://twitter.com/UrbanSidewalks
   email:             alcarazirvin@gmail.com
 
 # Gems
