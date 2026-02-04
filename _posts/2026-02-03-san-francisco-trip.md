@@ -28,27 +28,41 @@ Heading home I got to catch up with Lydia. She was less shy that previous times.
 ![Myself against a mantle with two carved dogs](/assets/img/sf-trip-2025/sf-trip-2025-38.jpg)
 <sub><sup>*Myself against a mantle with two carved dogs*</sup><sub>
 
-The next day we got up bright and early and had some Paris Baguette. It was alright. I've had their goods before in other parts of the state so I wasn't too enthused. We then made the trek over to visit some of the museums of the city. Despite having been here so many times I still hadn't seen so many of the museums. I never had time when I went with college friends and as an 
+The next day we got up bright and early and had some Paris Baguette. It was alright. I've had their goods before in other parts of the state so I wasn't too enthused. We then made the trek over to visit some of the museums of the city. Despite having been here so many times I still hadn't seen so many of the museums. I never had time when I came to SF in the past which is a shame because this place is definitely worth it. Pictured here is myself with a gorgeous fireplace mantle that reminds me of Cashew and Norman. This one was taken by Oscar I believe. 
 
 ![Oscar against some art](/assets/img/sf-trip-2025/sf-trip-2025-39.jpg)
 <sub><sup>*Oscar against some art*</sup><sub>
 
+Moving along the de Young I love the contrast in this photo. It works so well with Oscar's outfit. I do wish I could have composed this a little better. The background photo is completely blurred and the angles are all off. The few pops of color in the phone also ruin it for me. 
+
 ![A gorgeous bird in the greenhouse](/assets/img/sf-trip-2025/sf-trip-2025-28.jpg)
 <sub><sup>*A gorgeous bird in the greenhouse*</sup><sub>
+
+After a few hours wandering the de Young we made it over to the California Academy of Sciences. In the very center of the museum is a giant green house filled with gorgeous tropical plants, birds, insects, and all manner of life. This bird was so beautifully colored that I just had to take a picture of it. The plumage was spectacular. I really like the background bokeh in this one and I would have tried to remove the top branch if I could. I find it distracting from the subject.
 
 ![Milly admiring the fish](/assets/img/sf-trip-2025/sf-trip-2025-24.jpg)
 <sub><sup>*Milly admiring the fish*</sup><sub>
 
+There's a decent square footage to the Cal Academy. The museum has a albino alligator named Claude who has since passed but around the same area there are tons of fish. Pictured here is Milly completely enthralled by the fish tank. The small gesture with her glasses looks so cool mixed with the almost completely black silhouette. 
+
 ![Mounds atop Cal Academy](/assets/img/sf-trip-2025/sf-trip-2025-18.jpg)
 <sub><sup>*Mounds atop Cal Academy*</sup><sub>
+
+At the rooftop of the Cal Academy is a collection of green mounds whose purpose is unknown to me. I imagine it's a green roof that helps keep stuff cool down below by absorbing some of the sunlight. They have a Ghibli quality to them. Probably not so much the movies as a similar rooftop at the Ghibli museum in Japan. We left the museum soon after this and I believe we ended up having dinner then going to a drag show for the night. We saw a show at Oasis which was incredible. It was an entire Jurrasic Park reimagined experience that left me wondering how they didn't start going broke earlier. The Oasis is now fine and has been saved but things looked grim for a while there. 
 
 ![At The Bart Station](/assets/img/sf-trip-2025/sf-trip-2025-15.jpg)
 <sub><sup>*At The Bart Station*</sup><sub>
 
+The next day we was the main event - Wine Party at the Park! Before we made it to the park Nicole, Oscar, and I went to Milk Belly in San Jose. The wait was ridiculous because we didn't get there right when it opened but it was so worth it. The sandwiches were incredible and so were all the baked items. We took and entire loaf of bread with us to share at the park party. We made our way over to the city. This time we decided to take the Bart. The Bart has a nice park and ride structure that dropped us off right in front of Dolores park. I love the big leading lines of the train in this one that carry you off into the distance. Upon revie I think I would crop out a tiny bit to emphasize that pull for the viewer. 
+
 ![At Dolores Park](/assets/img/sf-trip-2025/sf-trip-2025-06.jpg)
 <sub><sup>*At Dolores Park*</sup><sub>
 
+The park was a marsh when we got there. Milly tried her best to pick a dry spot but the gloomy San Francisco weather made that kind of impossible. Regardless, we had a fantastic time meeting and hanging with Milly's friends. There were so many folks I've only ever heard stories of and it was nice to put a face to a name. We played a couple of board games and Milly played with her crow tarot deck. It was pretty chilly out and thankfully someone loaned me a puffy jacket because I was ill prepared for the weather. After this I think we ended up getting Burma superstar for dinner after wandering around for a bit. 
 
+We had a whole day on Sunday left of our trip and we used it to watch some women's soccer, do an escape room, and have some high tea around Nicole's mom's office. I didn't take many photos of that leg of the trip so I don't have one to look at but it was an excellent wind down for the trip. I'm so glad we made time to visit during this time of the year and it made summer so special. 
+
+It took me a long time to actually get to these photos and edit some of them. Then came actually writing this blog post which took some time too. There were a couple roadblocks but like all things it was just a matter of sitting down and just getting to it. 
 
 
 
