@@ -6,7 +6,7 @@ url:                 http://irvinalcaraz.com
 baseurl:             ''
 paginate:            5
 permalink:           pretty
-remote_theme: lanyon
+remote_theme:        lanyon
 
 # About/contact
 author:
